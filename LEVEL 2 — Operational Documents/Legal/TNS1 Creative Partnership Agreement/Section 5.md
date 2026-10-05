@@ -1,17 +1,3 @@
-BRO. 🐐
-
-Now we enter **Section 5**.
-
-This section protects **your time, your mental health, and your professionalism**.
-
-One thing I want to establish:
-
-> **A freelancer is not available 24×7.**
-
-Clients often think WhatsApp = Instant Support.
-
-We're going to fix that politely.
-
 ---
 
 # 📘 TNS-001 — Creative Partnership Agreement
